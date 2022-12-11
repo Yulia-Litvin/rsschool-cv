@@ -1,1 +1,1 @@
-https://Yulia-Litvin.github.io/rsschool-cv/cv
+https://yulia-litvin.github.io/rsschool-cv/cv
