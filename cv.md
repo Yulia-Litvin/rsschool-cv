@@ -14,8 +14,7 @@ Education
 :   **MSLU(Minsk State Linguistic University**; English Faculty 
 
     
-
-2015-2019
+ 2015-2019
 :   **MIU(Minsk Innovation University)**; Faculty of Communications, Economics and Law
 
     
